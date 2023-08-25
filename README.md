@@ -1,4 +1,4 @@
-Hey my name is Orion S. Salazar I'm a Front-End Developer/Software Engineer
+Hey my name is Orion S. Salazar I'm a Front-End Developer/Fullstack/Software Engineer
 I have a few projects to look at in my repositories and also I'm up for any challenges or collabs one might have to offer, 
 I'm continuing School and working right now but I'm always ready to go at a moments notice.
 -40+ Certifications
